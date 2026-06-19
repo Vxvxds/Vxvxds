@@ -2,7 +2,7 @@
 - 👀 I’m interested in Video Games, Game Development, Writing, and more!
 - 🌱 I’m currently learning Game Design
 - 💞️ I’m looking to collaborate on Game Jams
-- 📫 How to reach me Email: markimeyers@outlook.com
+- 📫 How to reach me Email: snowmeyers@outlook.com
 - 😄 Pronouns: They/Them
 - ⚡ Fun fact: I'm a college student at the moment
 
